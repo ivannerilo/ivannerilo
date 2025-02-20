@@ -1,4 +1,4 @@
-- Hello, my name is @ivannerilo, i'm a Demolay and dale Grêmio!
+- Hello, my name is @ivannerilo.
 - My instagram is @nerilo_ivan ( You can contact me by DM )
 
 <!---
